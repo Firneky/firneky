@@ -5,7 +5,7 @@
 
 
 <p align=center>
-omen # any prns ,, agender aroace
+omen/dante # any prns ,, agender aroace
   
 <p align=center>
-transformers, pathologic, starlight express, the magnus archives, metal gear, metalocalypse, disco elysium + more
+phighting, pathologic, the magnus archives, transformers, metal gear, metalocalypse, disco elysium + more
